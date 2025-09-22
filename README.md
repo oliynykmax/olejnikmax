@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @olejnikmax
+- 👋 Hi, I’m Max
 - 📫 How to reach me oliynykmax.t.me
 
 <!---
